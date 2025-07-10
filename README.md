@@ -4,4 +4,4 @@ I code professionally since 2020 (5 years) for a three letter company where I do
 
 I used to code way before I decided to work on this field, out of cheer fascination with the possibilities of creating my own software - I'm meticulous and take quality over quantity any day - I dislike slouch software as much as the end user.
 
-This account contains my personal projects, please take a look at my pins below!
+This is my personal use account! - Check out my pinned projects below! 📌
